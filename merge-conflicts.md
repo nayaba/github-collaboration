@@ -1,1 +1,1 @@
-🤪 This is very unique and different.
+Make peace, not conflict.
